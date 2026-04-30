@@ -1,4 +1,4 @@
-
+Experience brainrot evolution like never before with advanced Scripts for brainrot evolution, the #1 Script. Includes god mode and private server
 
 
 
